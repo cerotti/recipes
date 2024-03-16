@@ -1,2 +1,3 @@
 # recipes
-some of my favourite recipes
+These are some of my favourite recipes. Yummy!
+
